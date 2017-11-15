@@ -1,1 +1,0 @@
-# yongok.github.io
